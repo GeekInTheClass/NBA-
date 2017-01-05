@@ -14,7 +14,7 @@
 3.Kevin Durant
 -------------
 #인물정보
-![듀란트](http://postfiles14.naver.net/MjAxNzAxMDRfMjAz/MDAxNDgzNTM4NjE0NDcz.e-bcVVgKlHDtJ9uOYF46_rhtkr8C-lAePSVG1hJg0OYg.bWvhsMN3vESWy7TECJWtlHR8E1Cg8HZ2q4LTiHQD6uwg.JPEG.woghd1111/제임스.JPG?type=w773)
+![듀란트](http://postfiles7.naver.net/MjAxNzAxMDRfMjMw/MDAxNDgzNTM4NjE0NDcz.itFa1IcrjkFsN_IMqOfDDD6Li_wCly9VLOzc1Cy5TS8g.52Q2kNN1QRok19SUY1sPNc_F6V5YXEkeMcLKMQ6mFs0g.JPEG.woghd1111/듀란트.JPG?type=w773)
 
 4.Lebron James
 -------------
